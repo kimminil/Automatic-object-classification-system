@@ -1,4 +1,4 @@
+<img width="842" height="764" alt="image" src="https://github.com/user-attachments/assets/94a330c0-445c-42fc-982e-6b56f97ef9af" />
 
-https://app.diagrams.net/?dark=auto#G15UfWAwgnwSWidSfk6FhU4pjFZ3XKPGx8
 
-https://cad.onshape.com/documents/92a0f30be6d033869eb7492b/w/1b9072e70c4dce4cee9879b4/e/d2c7a614b55c86cc1b12ce76?renderMode=0&leftPanel=false&uiState=6840e09b19f9520cd2f29e6f#comment6840d8fbc7e3d44fbfc926bd
+<img width="660" height="750" alt="image" src="https://github.com/user-attachments/assets/8a38bcb4-00a8-4d8d-ab16-319abfa60f43" />
